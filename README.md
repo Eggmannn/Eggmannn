@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello! I'm Ida Bagus Wahyudha Gautama, a passionate cybersecurity student eager to contribute to the digital security landscape.
+Hello! I'm Yudha, a passionate cybersecurity student eager to contribute to the digital security landscape.
 
 
 ## 🌐 Socials:
